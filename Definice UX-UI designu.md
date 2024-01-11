@@ -1,1 +1,0 @@
-# Definice UX/UI designu
